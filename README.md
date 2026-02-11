@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SACI930817HMCNRZ03
+SACI930817HMCNRZ03
